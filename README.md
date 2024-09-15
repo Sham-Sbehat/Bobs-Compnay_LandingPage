@@ -1,1 +1,1 @@
-# Bob-s-Compnay-Landing-Page
+# Bobs Compnay-Landing Page
